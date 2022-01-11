@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Juan Aragon
+- 🌱 I’m currently watching Smallville
+- 📫 You can reach me at me@juanaragon.co
